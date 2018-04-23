@@ -1,2 +1,3 @@
 # The-Random-Numberpage
-Randy Randy
+
+http://inghelm.com/kenneth/TheRandomNumberpage/index.html
